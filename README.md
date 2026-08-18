@@ -1,4 +1,4 @@
-# 🎬 Higgsfield AI Coupon Code &vert; 67% OFF — Verified & Working (July 2026)
+# 🎬 Higgsfield AI Coupon Code &vert; 67% OFF — Verified & Working (August 2026)
 
 **Direct Answer:** The best Higgsfield AI coupon code right now is **`GROWWITHALEX-10`** — it gives **67% OFF** the Ultimate plan. All codes listed below are **100% tested and verified**. You MUST register through the referral link first — otherwise the codes will NOT work and the coupon field may be permanently blocked.
 
@@ -19,7 +19,7 @@ Higgsfield AI is an AI-powered video generation platform that turns text prompts
 
 ---
 
-## ✅ Active Higgsfield Coupon Codes — Tested July 2026
+## ✅ Active Higgsfield Coupon Codes — Tested August 2026
 
 All codes below have been personally tested and confirmed working. They are subject to expiration without notice — use them while they last.
 
@@ -108,7 +108,7 @@ Your plan price should update immediately. If it shows the discount, proceed to 
 | **Best Code** | `GROWWITHALEX-10` |
 | **Maximum Discount** | **67% OFF** |
 | **Applies To** | Ultimate Plan |
-| **All Codes Tested** | ✅ 100% Verified July 2026 |
+| **All Codes Tested** | ✅ 100% Verified August 2026 |
 | **Requirement** | Must register via referral link |
 | **Blocked Field Fix** | Create new account via link |
 | **Video Tutorial** | **[Watch Here](https://www.youtube.com/watch?v=Nb4tDqYfVB8)** |
